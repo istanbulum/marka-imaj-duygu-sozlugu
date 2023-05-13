@@ -1,0 +1,1 @@
+# marka-imaj-duygu-sozlugu
